@@ -1,0 +1,2 @@
+Die vorliegenden Dateiformate wurden durch das Programm: https://provalisresearch.com/products/qualitative-data-analysis-software/freeware/ 
+erstellt. Dieses Programm kann in der Lite Variante kostenlos heruntergeladen werden. Dieses enthält die Transkripte, Codebücher und auch die jeweiligen Codierungen
